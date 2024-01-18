@@ -1,0 +1,1 @@
+# Communication-System-for-Individuals-with-Voice-Paralysis
